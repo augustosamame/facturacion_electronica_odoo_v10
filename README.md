@@ -17,7 +17,7 @@ Lista de participantes:
 
 1) Augusto Samamé - DevTechPerú - augusto@devtechperu.com
 
-2)
+2) Samuel Mendoza - Empet.com.pe - samuel.mendoza@empet.com.pe
 
 3)
 
