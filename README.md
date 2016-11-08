@@ -19,7 +19,7 @@ Lista de participantes:
 
 2) Samuel Mendoza - Empet.com.pe - samuel.mendoza@empet.com.pe
 
-3)
+3) Jorge Cáceres - jwcaceres@gmail.com
 
 4)
 
