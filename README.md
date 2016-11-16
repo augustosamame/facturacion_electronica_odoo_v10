@@ -23,7 +23,7 @@ Lista de participantes:
 
 4) Elmer Ventocilla - miguelventocilla17@gmail.com
 
-5)
+5) Steave Hidalgo - redvastago@gmail.com
 
 6)
 
