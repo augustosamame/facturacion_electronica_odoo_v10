@@ -25,7 +25,7 @@ Lista de participantes:
 
 5) Steave Hidalgo - redvastago@gmail.com
 
-6)
+6) Jonathan Miranda - jjjmcampos@gmail.com
 
 
 
